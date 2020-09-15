@@ -1,0 +1,1 @@
+# Corona_outside_shop_inside
